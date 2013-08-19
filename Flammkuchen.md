@@ -22,3 +22,5 @@ Danach in vier kleine runde Ballen formen und jeweils sehr dünn ausrollen. Den 
 Im Ofen bei 250 Grad ca. 7-10 Minuten backen, bis die Flammkuchen leicht knusprig sind.
 
 Für die vegetarische Variante anstelle von Speck Paprikawürfel verwenden.
+
+Schmeckt auch sehr gut mit Spinat und Gorgonzola!
